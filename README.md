@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tubers93, lol
+- 👋 Hi!
 - 👀 I’m interested in roblox ig
 - 🌱 I’m currently learning: rather not say (:
 - 💞️ I’m looking to collaborate on roblox scripting
